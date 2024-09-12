@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Amber-Sakuriga, I'm french, I can also speak English.
+- 👀 I’m interested in Botany, technology, learning new things & more.
+- 🌱 I’m currently learning Binary slowly, looking to learn more coding languages.
+- 📫 How to reach me Through Discord : "Sakuriga", Instagram "Sakuriga".
+- ⚡ I'm always looking for new knowledge, Technology's currently my main focus and it is fascinating me.
